@@ -48,3 +48,7 @@ Reduced email response time by 70%
 Automated 80% of routine email tasks
 
 Improved communication efficiency and consistency
+
+
+
+https://capgemini-my.sharepoint.com/:f:/p/shiva-sai-krishna_bodapati/IgADh3SNaICPToXPW63IDMOPAeLzfgTQpAHVd1XjwrSc55k?e=yPyH1Q
